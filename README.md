@@ -1,6 +1,6 @@
 ### Hello World, I am Ana Beatriz!😊
 
-🚀 Sou estudante de Tecnologia, tenho 20 anos e estou me esforçando bastante crescer nesse mercado que aumenta a cada dia.Tenho enfrentado muitos desafios e aprendido muito com eles!
+🚀 Sou estudante de Tecnologia, tenho 20 anos e estou me esforçando bastante para crescer nesse mercado que aumenta a cada dia.Tenho enfrentado muitos desafios e aprendido muito com eles!
 
 ### Linguagens que estou aprendendo:
 
