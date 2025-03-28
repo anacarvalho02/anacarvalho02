@@ -1,6 +1,6 @@
 ### Hello World, I am Ana Beatriz!😊
 
-IF Goiano - Siatemas para Internet
+IF Goiano - Sistemas para Internet
 
 🚀 Sou estudante de Tecnologia, tenho 20 anos e estou me esforçando bastante para crescer nesse mercado que aumenta a cada dia.Tenho enfrentado muitos desafios e aprendido muito com eles!
 
