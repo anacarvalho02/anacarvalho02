@@ -2,7 +2,7 @@
 
 IF Goiano - Sistemas para Internet - 6º Período
 
-🚀 Sou estudante de Tecnologia, tenho 21 anos e estou me esforçando bastante para crescer nesse mercado que aumenta a cada dia.Tenho enfrentado muitos desafios e aprendido muito com eles!
+🚀 Sou estudante de Tecnologia, tenho 22 anos e estou me esforçando bastante para crescer nesse mercado que aumenta a cada dia.Tenho enfrentado muitos desafios e aprendido muito com eles!
 
 ### Linguagens que estou aprendendo:
 
